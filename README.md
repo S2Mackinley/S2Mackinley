@@ -9,4 +9,4 @@
 - 💬 Ask me about collabing on a project 
 - 📫 How to reach me: Elijahprom@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I build my own watercooled PC
+- ⚡ Fun fact: I built my own watercooled PC
